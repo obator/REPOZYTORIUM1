@@ -1,0 +1,9 @@
+
+
+
+
+WPROWADZAM NOTATKE DO PLIKU TWO.SH
+
+
+
+
